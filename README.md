@@ -6,4 +6,6 @@ In the intersection of innovation, design, and neuroscience, this project pionee
 For Nike, a brand synonymous with performance and relentless creativity, this offers an unprecedented canvas. Imagine a store that not only reflects the seasonal trends but resonates with the very mindset and personal choice of its customers. Through the integration of specific keywords, the interior can morph to embody the essence of each collection, whether it's the power of a new athletic line or the freedom of a summer ensemble.
 The utilization of EEG brings a nuanced understanding of the customer's subconscious preferences, allowing the space to adapt and evolve in real time. It's more than a store; it's an environment that mirrors the aspirations, emotions, and individuality of each visitor.
  It’s a dialogue, a dynamic conversation between the brand and its audience. It's about crafting spaces that breathe, that connect, and that inspire. In a world where experience is the ultimate luxury, this project offers Nike the opportunity to lead, to innovate, and to connect on a level that transcends the the ordinary.
-https://drive.google.com/drive/folders/10rN9OBrWNHBEzPVyYuDxPjoGBltHnKA9?usp=sharing             Link to project files
+https://drive.google.com/drive/folders/10rN9OBrWNHBEzPVyYuDxPjoGBltHnKA9?usp=sharing            
+
+![20230902_181041](https://github.com/rakshajay/Cogni-Craft/assets/137255223/63cc9a1c-07d4-444e-a715-39e1ad55785a)
