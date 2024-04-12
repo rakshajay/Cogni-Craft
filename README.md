@@ -8,4 +8,5 @@ The utilization of EEG brings a nuanced understanding of the customer's subconsc
  It’s a dialogue, a dynamic conversation between the brand and its audience. It's about crafting spaces that breathe, that connect, and that inspire. In a world where experience is the ultimate luxury, this project offers Nike the opportunity to lead, to innovate, and to connect on a level that transcends the the ordinary.
 lINK TO PROJECT FILES (https://drive.google.com/drive/folders/10rN9OBrWNHBEzPVyYuDxPjoGBltHnKA9?usp=sharing)           
 
+For enhanced privacy and control over the distribution of my work, the full thesis project is hosted on Google Drive and is available for view-only access. Please click the link below to access the document:
 ![20230902_181041](https://github.com/rakshajay/Cogni-Craft/assets/137255223/63cc9a1c-07d4-444e-a715-39e1ad55785a)
