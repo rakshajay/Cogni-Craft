@@ -11,3 +11,10 @@ For enhanced privacy and control over the distribution of my work, the full thes
 
 
 ![20230902_181041](https://github.com/rakshajay/Cogni-Craft/assets/137255223/63cc9a1c-07d4-444e-a715-39e1ad55785a)
+
+
+link to proejct website 
+https://rakshajay.github.io/Raksha-Portfolio/cognicraft.html
+
+link to youtube video
+https://youtu.be/BYLLKY-rS8g
